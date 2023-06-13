@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @kulkarni-vivek7
-- 👀 I’m interested in Developing web pages, writing programs
+- 👀 I’m interested in Developing web pages and Softwares.
 - 🌱 I’m currently learning Bachelor Of Engineering
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me Through gmail kulkarnivivek098@gmail.com or vivekbldea@gmail.com 
